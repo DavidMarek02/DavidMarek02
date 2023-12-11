@@ -1,33 +1,25 @@
-# mam velkou hlavu
+# Hi i guess iam David Marek
 
-<!-- This is a comment, only visible to the author: Add a link to your presentation. -->
-<!-- Presentations do not need to be a PDF, you may link elsewhere, such as Figma, YouTube, etc. -->
-<!-- Consider adding navigation to each section (About, Featured Projects, Notes, etc.) -->
 
-- [View Presentation](img/surname-draft-first-impression-2023.pdf) (PDF) <!-- Add helpful hint as to what kind of file or destination is here. -->
-- [About](#about)
-- [Featured Projects](#featured-projects)
-- [Notes](#notes)
+## Some stuff about me!!
 
-## About
+![CR6_1948](https://github.com/DavidMarek02/DavidMarek02/assets/153546110/a44ab72f-a600-40c9-9f18-a17372446b71)
 
-<!-- Consider including a headshot. We’re not designing, so keep the image width/height around 320px x 320px (square). Replace "surname" with your surname in the file name. -->
 
-![Write an alternative text description.](img/surname-headshot.jpg)
 
-A short description about yourself. Think — alt text description length, a max of 125 characters, short and sweet. If you go over, that’s okay — edits are free.
+Iam a photographer and sometimes even videographer. Iam hard working and childish. Iam also a great gamer and competetive music enjoyer!
 
-## Featured Projects
+## Miss Czech Republic 2023
+ 
+We were given assignment to make intro for very prestige beauty contest Miss Czech Republic
 
-A short description about the work.
+![image](https://github.com/DavidMarek02/DavidMarek02/assets/153546110/0706769d-fa7d-401f-88dd-3167afc916dd)
 
-### Featured Project 1 Title
 
-<!-- Use a static poster image or animated GIF, but no video files. Again, keep the image width/height manageable, around 1280x x 720px (16:9 aspect ratio), or a max-width of 1280px. -->
 
-![Write an alternative text description.](img/featured-project-01.png)
 
-- A short description about the project — *the what*.
+
+- Pro
 - A short description about the significance of the project — *the whys*.
 - A short description about the outcome of the project — *the result or takeaway*.
 
