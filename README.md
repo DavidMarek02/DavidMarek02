@@ -25,6 +25,7 @@ I am master gamer and competitive music enjoyer.
  ## Mazda calendar + company events
 ![a2-vgroup-front](https://github.com/DavidMarek02/DavidMarek02/assets/153546110/f1bb64e1-f4b7-47bd-85b8-60985cabb457)
 
+
 - Thanks to my long work with car shop V-Group I have been called to shoot a Christmas calendar for car brand Mazda with their new car Mazda CX-60
 - I was also called to document big celebration events for them as well as grand revealing of the calendar
 - I have always liked cars and everything around them so it was a great feeling of satisfaction in my work life
@@ -47,4 +48,5 @@ I am master gamer and competitive music enjoyer.
 - In my free time i like to travel and find interesting people and place
 - I try to evoke feelings and vibe of the exact moment when i pressed shutter of my camera
 - I always travel with my camera cause i never know when there will be a perfect moment to capture
+
 
