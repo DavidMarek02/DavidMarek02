@@ -16,39 +16,35 @@ I am master gamer and competitive music enjoyer.
 
 ## MISS 2023
 ![obrazek_2023-09-27_083909109-removebg-preview-12](https://github.com/MirekCernyIV/english-for-designers1/assets/149397901/1e69812c-85a9-45b9-8f35-a9872d8c6ffa)
+
 - We have been asked to make an intro for national beauty contest: Miss Czech Republic
 - Our job was to introduce CEO and executive producers of this contest with contestants
 - Even tho the job was very important and very challenging i have a feeling of satisfaction that we did the absolute best we could
 - Also it was very cool to see our work live on national TV
 
- ## Mazda calendar + company event
+ ## Mazda calendar + company events
 ![a2-vgroup-front](https://github.com/DavidMarek02/DavidMarek02/assets/153546110/f1bb64e1-f4b7-47bd-85b8-60985cabb457)
 
--Thanks to my long work with car shop V-Group I have been called to shoot a christmas calendar for car brand Mazda with their new car
--I was also called to document big celebration events for them
--
+- Thanks to my long work with car shop V-Group I have been called to shoot a Christmas calendar for car brand Mazda with their new car Mazda CX-60
+- I was also called to document big celebration events for them as well as grand revealing of the calendar
+- I have always liked cars and everything around them so it was a great feeling of satisfaction in my work life
 
- 
+  ## Lego museum
+![Začátek MS v hokeji lil](https://github.com/DavidMarek02/DavidMarek02/assets/153546110/7862061c-102c-4d41-b831-7c0fb452a612)
+
+- I have always like lego since i was a little kid
+- It felt so great when the biggest lego museum in Czech Republic agreed to work together
+- My job there is to promote their exponents and manage their social media
+- It really cant even feel like job when you just play with lego whole day and gets paid for it!
+
+
+
   
-## What i do in the shadows/ My free time 
+  
+##  My cool creations in free time
+![20230308-CR6_4118](https://github.com/DavidMarek02/DavidMarek02/assets/153546110/fd9faf4b-1451-437e-9c92-ac7389720b20)
 
-### Illustrations
-![my ilustrations](https://github.com/MirekCernyIV/english-for-designers1/assets/149397901/c9220056-12cb-4b5d-ba20-a9c797fb01e9)
+- In my free time i like to travel and find interesting people and place
+- I try to evoke feelings and vibe of the exact moment when i pressed shutter of my camera
+- I always travel with my camera cause i never know when there will be a perfect moment to capture
 
-
-
-- When I have some time on my hands, I use it to draw. I love mythology and history, so I am trying to combine these topics together with more modern styles, like the hipster Odin or Circle of life (where the 3 lizards reprezent three differnet religions) 
-- These things are just something, that i do to relax my little smooth brain. 
-### Student film
-
-![film ](https://github.com/MirekCernyIV/english-for-designers1/assets/149397901/a1471391-7c5a-47e0-8c7f-e415b766e1d3)
-
-
-
-- My greatest current project is a student film where I am working on the script, storyboards, animatics, concept art, 3D modeling, rigging, dubbing, animation, and compositing.  So sometimes, it can be a little bit overwhelming.
-
-- Despite each of these categories bringing completely new and different problems, the biggest challenge for me is to forget ideas. It is very common that suddenly, I come up with a new way to tell the story, and out of the blue, I catch myself changing the whole script.
-
-- This project is pretty significant for me because I have the chance to try different fields and learn new skills. 
-
-![meme](https://github.com/MirekCernyIV/english-for-designers1/assets/149397901/34c0ec31-10f1-4c86-b3ca-d82e1ad0bac0)
