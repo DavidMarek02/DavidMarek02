@@ -5,8 +5,8 @@
 ## Some super important stuff about me!
 
 I am a photographer, sometimes even videographer, if i try hard enough and someone offers me a good price i can be even editor!!
-I am also childish but hard working, even tho iam a team player sometimes a like to take my time and work alone.
-I am master gamer and competitive music enjoyer.
+I am also childish but hard working, even tho iam a team player sometimes a like to take my time and work alone
+I am master gamer and competitive music enjoyer
 - Basically when something is beautiful I capture it and make it more beautiful and if something is not that beautiful i try to not mess it up even more!
 - I love exploring, traveling and I try to capture the beauty in this world cause I think we can all appreciate it at least a little bit more 
 - My music playlists are straight up fire
