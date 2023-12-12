@@ -1,4 +1,4 @@
-# Hello there, I guess iam David Marek!
+# Hello there, I guess I'm David Marek!
 ![CR6_1948](https://github.com/DavidMarek02/DavidMarek02/assets/153546110/da2dadbc-cb47-42e8-aee0-8e427c4a5262)
 
 
