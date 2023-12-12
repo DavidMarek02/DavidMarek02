@@ -1,45 +1,35 @@
-# Hello there, I am Miroslav Černý
-![profil](https://github.com/MirekCernyIV/english-for-designers1/assets/149397901/ef27686d-1dcd-4873-804b-9c1e3cfcea10)
-
-## Little about my human being
-
-I am a 3D generalist, VFX/video editor, motion designer, illustrator, basic graphic designer, nerd, and gentle soul.
-- So in another words you can say. i convert texts and paragraphs into pictures and it just depends on you how many of them fo you want and how fast they will go.
-- I love stories and finding ways to tell them.
-- Like any other introvert, I prefer to work alone, but I also love working in a team. I am sometimes amazed at how many ideas a small group can come up with.
-- Plus, I have only one good photo of myself. So naturally, I use it everywhere.
+# Hello there, I guess iam David!
+![CR6_1948](https://github.com/DavidMarek02/DavidMarek02/assets/153546110/da2dadbc-cb47-42e8-aee0-8e427c4a5262)
 
 
-## My projects 
+## Some super important stuff about me!
 
-## 3D work
-#VIsualizer
-![visalizer](https://github.com/MirekCernyIV/english-for-designers1/assets/149397901/6d6e86de-68cb-4bbe-805c-3ba7625753aa)
+I am a photographer, sometimes even videographer, if i try hard enough and someone offers me a good price i can be even editor!!
+I am also childish but hard working, even tho iam a team player sometimes a like to take my time and work alone.
+I am master gamer and competitive music enjoyer.
+- Basically when something is beautiful I capture it and make it more beautiful and if something is not that beautiful i try to not mess it up even more!
+- I love exploring, traveling and I try to capture the beauty in this world cause I think we can all appreciate it at least a little bit more 
+- My music playlists are straight up fire
 
-
-
-Music visualizers are always fun, because you are trying to put together music and video, two completely separate fields of creativity. But it is so rewarding when you catch the right moment, and suddenly it all works
-
-![my ilustrations](https://github.com/MirekCernyIV/english-for-designers1/assets/149397901/c568ce05-da21-4e2b-9bd7-493da7c510cc)
-
-
-- Sometimes I do some small visualizations of architecture, like this one. Despite the fact that almost everything is on the blueprint, you still need to use a little bit of creativity for the interior.
-- So, for a brief moment, I become an interior designer. Who knows, which type of wood is best for the floor, which for the ceiling, and all kinds of this stuff.
+# My projects:
 
 
-## 2D work
-- When I am a little tired of 3D, I take a vacation in motion graphics. There are things just one dimension less complicated.
-# TVOJE Hostivice
-![tvoje hostivice](https://github.com/MirekCernyIV/english-for-designers1/assets/149397901/14a2f8ea-48dd-4a5a-b9e6-dd0a1db2c525)
-
-
-- This was my work for the city of Hostivice, where I was doing the animation of their logo. There, I was trying to tell the story of people, who come with ideas to make their city better. That was the main goal of the project.
-- This work was pretty significant for me because it was my first logo animation work.
-
-# MISS 2023
+## MISS 2023
 ![obrazek_2023-09-27_083909109-removebg-preview-12](https://github.com/MirekCernyIV/english-for-designers1/assets/149397901/1e69812c-85a9-45b9-8f35-a9872d8c6ffa)
-- I was fortunate to work in post-production on Miss 2023. I was removing bacground behind models. So it could be used on stage.
-- This was a huge experience for me in terms of working with a big television network like NOVA.
+- We have been asked to make an intro for national beauty contest: Miss Czech Republic
+- Our job was to introduce CEO and executive producers of this contest with contestants
+- Even tho the job was very important and very challenging i have a feeling of satisfaction that we did the absolute best we could
+- Also it was very cool to see our work live on national TV
+
+ ## Mazda calendar + company event
+![a2-vgroup-front](https://github.com/DavidMarek02/DavidMarek02/assets/153546110/f1bb64e1-f4b7-47bd-85b8-60985cabb457)
+
+-Thanks to my long work with car shop V-Group I have been called to shoot a christmas calendar for car brand Mazda with their new car
+-I was also called to document big celebration events for them
+-
+
+ 
+  
 ## What i do in the shadows/ My free time 
 
 ### Illustrations
