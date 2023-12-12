@@ -14,8 +14,9 @@ I am master gamer and competitive music enjoyer.
 # My projects:
 
 
-## MISS 2023
-![obrazek_2023-09-27_083909109-removebg-preview-12](https://github.com/MirekCernyIV/english-for-designers1/assets/149397901/1e69812c-85a9-45b9-8f35-a9872d8c6ffa)
+## Miss Czech Republic 2023
+![image](https://github.com/DavidMarek02/DavidMarek02/assets/153546110/f316e1a4-261a-45f1-b58e-8a26a7ab859b)
+
 
 - We have been asked to make an intro for national beauty contest: Miss Czech Republic
 - Our job was to introduce CEO and executive producers of this contest with contestants
